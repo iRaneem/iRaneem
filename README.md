@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on AI projects & AI artathon 
 - 📫 How to reach me ***
 - email: renoalomari1100@gmail.com
-- twitter: iraneemalomari
+- twitter: @iraneemalomari
 - linkedin: https://www.linkedin.com/in/raneem-alomari-214050214
 
 
